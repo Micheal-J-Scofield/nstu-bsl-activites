@@ -1,0 +1,1 @@
+# nstu-bsl-activites
